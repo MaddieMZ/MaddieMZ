@@ -5,11 +5,15 @@ Additionally, I have no dysphoria or insecurities regarding my masculine name an
 - I consider myself to be a warm, compassionate and very phisically active person who's most of the time prioritizing other people's joy, as seeing them brings me joy as well :3
 
 Age 🍃: 20 
-B-day 🎇: June 18th
-Sexuality: Aromantic
-Pronouns ⚧️:She/Her/He/Him/They/Them Any pronouns, to be honest ¯\_(ツ)_/¯
-Games 🎮:Brawl Stars, Borderlands, Anything Plants vs. Zombies related, Minecraft, Terraria, The Battle Cats.
-I'm really looking forward to meet new friends and acquiring new skills!
 
-Don't hesitate on reaching me directly for inquiries c:
+B-day 🎇: June 18th
+
+Sexuality: Aromantic
+
+Pronouns ⚧️:She/Her/He/Him/They/Them Any pronouns, to be honest ¯\_(ツ)_/¯
+
+Games 🎮:Brawl Stars, Borderlands, Anything Plants vs. Zombies related, Minecraft, Terraria, The Battle Cats.
+
+I'm really looking forward to meet new friends and acquiring new skills!
+Don't hesitate on reaching me directly for any inquiries c:
 
